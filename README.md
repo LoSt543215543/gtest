@@ -1,0 +1,1 @@
+Gemini AKA stupid ai head. is stupid
